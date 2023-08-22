@@ -8,3 +8,7 @@
 #### Soru2
 [untitled2.webm](https://github.com/mendess12/SistersLabAkademiUygulamaDersi3/assets/76566952/01992cea-941a-460f-98e0-2d8a3e552506)
 
+### Soru3
+[untitled3.webm](https://github.com/mendess12/SistersLabAkademiUygulamaDersi3/assets/76566952/9a92c901-f293-4af2-b2c5-624c4c38b1ee)
+
+
